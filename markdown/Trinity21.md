@@ -1,0 +1,1015 @@
+ 
+
++-----------------------------------------------------------------------+
+| **[1928 BCP](../index.html) + [Lessons Home](index.html) + [Last      |
+| Week](Trinity20.html) + [Next Week](Trinity22.html) +**               |
+|                                                                       |
+| -------------------------------------------------------------------   |
+|                                                                       |
+| **21st Sunday after Trinity\                                          |
+| \                                                                     |
+| \                                                                     |
+| (If you can, go to mass today. If you can\'t, read the mass propers   |
+| for today, found on pages [218-220](../propers/Trinity21.html) of the |
+| Book of Common Prayer.)\                                              |
+| \                                                                     |
+| [MORNING PRAYER (Abbreviated Version)\                                |
+| ](../DO_MP.html)[MORNING PRAYER (Full                                 |
+| Version)](../dailyofficeMP.html)**\                                   |
+| **[Ps 76. Notus in Judaea](../Psalter/PS76.html).\                    |
+| [Ps 121. Levavi oculos.](../Psalter/Ps121.html)**\                    |
+| \                                                                     |
+| []{#anchor216576}**The First Lesson\                                  |
+| Isaiah 59:15b-21**\                                                   |
+| 15 And the LORD saw it, and it displeased him that there was no       |
+| judgment.\                                                            |
+| 16 And he saw that there was no man, and wondered that there was no   |
+| intercessor: therefore his arm brought salvation unto him; and his    |
+| righteousness, it sustained him.\                                     |
+| []{#anchor218742}17 For he put on righteousness as a breastplate, and |
+| an helmet of salvation upon his head; and he put on the garments of   |
+| vengeance for clothing, and was clad with zeal as a cloak.\           |
+| 18 According to their deeds, accordingly he will repay, fury to his   |
+| adversaries, recompence to his enemies; to the islands he will repay  |
+| recompence.\                                                          |
+| 19 So shall they fear the name of the LORD from the west, and his     |
+| glory from the rising of the sun. When the enemy shall come in like a |
+| flood, the spirit of the LORD shall lift up a standard against him.\  |
+| 20 And the Redeemer shall come to Zion, and unto them that turn from  |
+| transgression in Jacob, saith the LORD.\                              |
+| 21 As for me, this is my covenant with them, saith the LORD; My       |
+| spirit that is upon thee, and my words which I have put in thy mouth, |
+| shall not depart out of thy mouth, nor out of the mouth of thy seed,  |
+| nor out of the mouth of thy seed\'s seed, saith the LORD, from        |
+| henceforth and for ever.\                                             |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor220606)**\ |
+| \                                                                     |
+| []{#anchor223132}**The Second Lesson\                                 |
+| 2 Corinthians 10:1-7, 17-18**\                                        |
+| 1 Now I Paul myself beseech you by the meekness and gentleness of     |
+| Christ, who in presence am base among you, but being absent am bold   |
+| toward you:\                                                          |
+| 2 But I beseech you, that I may not be bold when I am present with    |
+| that confidence, wherewith I think to be bold against some, which     |
+| think of us as if we walked according to the flesh.\                  |
+| []{#anchor224391}3 For though we walk in the flesh, we do not war     |
+| after the flesh:\                                                     |
+| 4 (For the weapons of our warfare are not carnal, but mighty through  |
+| God to the pulling down of strong holds;)\                            |
+| 5 Casting down imaginations, and every high thing that exalteth       |
+| itself against the knowledge of God, and bringing into captivity      |
+| every thought to the obedience of Christ;\                            |
+| 6 And having in a readiness to revenge all disobedience, when your    |
+| obedience is fulfilled.\                                              |
+| 7 Do ye look on things after the outward appearance? If any man trust |
+| to himself that he is Christ\'s, let him of himself think this again, |
+| that, as he is Christ\'s, even so are we Christ\'s.\                  |
+| []{#anchor225781}17 But he that glorieth, let him glory in the Lord.\ |
+| 18 For not he that commendeth himself is approved, but whom the Lord  |
+| commendeth.\                                                          |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor227794)**\ |
+| \                                                                     |
+| []{#anchor466898}**EVENING PRAYER ([Abbreviated](../dO_EP.html) +     |
+| [Full](../dailyofficeEP.html)) (Sunday)\                              |
+| [Ps 25. Ad te, Domine, levavi.](../Psalter/Ps25.html)**\              |
+| \                                                                     |
+| []{#anchor466597}**The First Lesson\                                  |
+| Genesis 15:1-6**\                                                     |
+| 1 After these things the word of the LORD came unto Abram in a        |
+| vision, saying, Fear not, Abram: I am thy shield, and thy exceeding   |
+| great reward.\                                                        |
+| 2 And Abram said, Lord GOD, what wilt thou give me, seeing I go       |
+| childless, and the steward of my house is this Eliezer of Damascus?\  |
+| 3 And Abram said, Behold, to me thou hast given no seed: and, lo, one |
+| born in my house is mine heir.\                                       |
+| 4 And, behold, the word of the LORD came unto him, saying, This shall |
+| not be thine heir; but he that shall come forth out of thine own      |
+| bowels shall be thine heir.\                                          |
+| 5 And he brought him forth abroad, and said, Look now toward heaven,  |
+| and tell the stars, if thou be able to number them: and he said unto  |
+| him, So shall thy seed be.\                                           |
+| 6 And he believed in the LORD; and he counted it to him for           |
+| righteousness.\                                                       |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor471263)**\ |
+| \                                                                     |
+| []{#anchor472107}**The Second Lesson\                                 |
+| Romans 4:1-8**\                                                       |
+| 1 What shall we say then that Abraham our father, as pertaining to    |
+| the flesh, hath found?\                                               |
+| 2 For if Abraham were justified by works, he hath whereof to glory;   |
+| but not before God.\                                                  |
+| 3 For what saith the scripture? Abraham believed God, and it was      |
+| counted unto him for righteousness.\                                  |
+| 4 Now to him that worketh is the reward not reckoned of grace, but of |
+| debt.\                                                                |
+| 5 But to him that worketh not, but believeth on him that justifieth   |
+| the ungodly, his faith is counted for righteousness.\                 |
+| 6 Even as David also describeth the blessedness of the man, unto whom |
+| God imputeth righteousness without works,\                            |
+| []{#anchor476932}7 Saying, Blessed are they whose iniquities are      |
+| forgiven, and whose sins are covered.\                                |
+| 8 Blessed is the man to whom the Lord will not impute sin.\           |
+| **[](http://www.episcop                                               |
+| alnet.org/DailyBibleReadings/questions/Trinity21.html#anchor495360)** |
+|                                                                       |
+| \                                                                     |
+| []{#anchor528635}**Monday\                                            |
+| [MORNING PRAYER (Abbreviated Version)\                                |
+| ](../DO_MP.html)[MORNING PRAYER (Full                                 |
+| Version)](../dailyofficeMP.html)**\                                   |
+| **[Ps 2. Quare fremuerunt gentes](../Psalter/Ps2.html)?\              |
+| [Ps 3. Domine, quid multiplicati?](../Psalter/Ps3.html)**\            |
+| \                                                                     |
+| []{#anchor529560}**The First Lesson\                                  |
+| 2 Kings 6:8-14**\                                                     |
+| 8 Then the king of Syria warred against Israel, and took counsel with |
+| his servants, saying, In such and such a place shall be my camp.\     |
+| 9 And the man of God sent unto the king of Israel, saying, Beware     |
+| that thou pass not such a place; for thither the Syrians are come     |
+| down.\                                                                |
+| 10 And the king of Israel sent to the place which the man of God told |
+| him and warned him of, and saved himself there, not once nor twice.\  |
+| 11 Therefore the heart of the king of Syria was sore troubled for     |
+| this thing; and he called his servants, and said unto them, Will ye   |
+| not show me which of us is for the king of Israel?\                   |
+| 12 And one of his servants said, None, my lord, O king: but Elisha,   |
+| the prophet that is in Israel, telleth the king of Israel the words   |
+| that thou speakest in thy bedchamber.\                                |
+| 13 And he said, Go and spy where he is, that I may send and fetch     |
+| him. And it was told him, saying, Behold, he is in Dothan.\           |
+| 14 Therefore sent he thither horses, and chariots, and a great host:  |
+| and they came by night, and compassed the city about.\                |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor777010)**\ |
+| \                                                                     |
+| []{#anchor778087}**The Second Lesson\                                 |
+| 2 Timothy 1:1-14**\                                                   |
+| 1 Paul, an apostle of Jesus Christ by the will of God, according to   |
+| the promise of life which is in Christ Jesus,\                        |
+| 2 To Timothy, my dearly beloved son: Grace, mercy, and peace, from    |
+| God the Father and Christ Jesus our Lord.\                            |
+| 3 I thank God, whom I serve from my forefathers with pure conscience, |
+| that without ceasing I have remembrance of thee in my prayers night   |
+| and day;\                                                             |
+| 4 Greatly desiring to see thee, being mindful of thy tears, that I    |
+| may be filled with joy;\                                              |
+| 5 When I call to remembrance the unfeigned faith that is in thee,     |
+| which dwelt first in thy grandmother Lois, and thy mother Eunice; and |
+| I am persuaded that in thee also.\                                    |
+| []{#anchor779707}6 Wherefore I put thee in remembrance that thou stir |
+| up the gift of God, which is in thee by the putting on of my hands.\  |
+| []{#anchor780754}7 For God hath not given us the spirit of fear; but  |
+| of power, and of love, and of a sound mind.\                          |
+| 8 Be not thou therefore ashamed of the testimony of our Lord, nor of  |
+| me his prisoner: but be thou partaker of the afflictions of the       |
+| gospel according to the power of God;\                                |
+| 9 Who hath saved us, and called us with an holy calling, not          |
+| according to our works, but according to his own purpose and grace,   |
+| which was given us in Christ Jesus before the world began,\           |
+| 10 But is now made manifest by the appearing of our Saviour Jesus     |
+| Christ, who hath abolished death, and hath brought life and           |
+| immortality to light through the gospel:\                             |
+| 11 Whereunto I am appointed a preacher, and an apostle, and a teacher |
+| of the Gentiles.\                                                     |
+| 12 For the which cause I also suffer these things: nevertheless I am  |
+| not ashamed: for I know whom I have believed, and am persuaded that   |
+| he is able to keep that which I have committed unto him against that  |
+| day.\                                                                 |
+| 13 Hold fast the form of sound words, which thou hast heard of me, in |
+| faith and love which is in Christ Jesus.\                             |
+| 14 That good thing which was committed unto thee keep by the Holy     |
+| Ghost which dwelleth in us.\                                          |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor781774)**\ |
+| \                                                                     |
+| []{#anchor787448}**EVENING PRAYER ([Abbreviated](../dO_EP.html) +     |
+| [Full](../dailyofficeEP.html)) (Monday)\                              |
+| [Ps 4. Cum invocarem](../Psalter/Ps4.html).\                          |
+| [Ps 8. Domine, Dominus noster.](../Psalter/Ps8.html)**\               |
+| \                                                                     |
+| []{#anchor788901}**The First Lesson\                                  |
+| Ecclesiastes 5:8-20**\                                                |
+| 8 If thou seest the oppression of the poor, and violent perverting of |
+| judgment and justice in a province, marvel not at the matter: for he  |
+| that is higher than the highest regardeth; and there be higher than   |
+| they.\                                                                |
+| 9 Moreover the profit of the earth is for all: the king himself is    |
+| served by the field.\                                                 |
+| 10 He that loveth silver shall not be satisfied with silver; nor he   |
+| that loveth abundance with increase: this is also vanity.\            |
+| 11 When goods increase, they are increased that eat them: and what    |
+| good is there to the owners thereof, saving the beholding of them     |
+| with their eyes?\                                                     |
+| 12 The sleep of a labouring man is sweet, whether he eat little or    |
+| much: but the abundance of the rich will not suffer him to sleep.\    |
+| 13 There is a sore evil which I have seen under the sun, namely,      |
+| riches kept for the owners thereof to their hurt.\                    |
+| 14 But those riches perish by evil travail: and he begetteth a son,   |
+| and there is nothing in his hand.\                                    |
+| 15 As he came forth of his mother\'s womb, naked shall he return to   |
+| go as he came, and shall take nothing of his labour, which he may     |
+| carry away in his hand.\                                              |
+| 16 And this also is a sore evil, that in all points as he came, so    |
+| shall he go: and what profit hath he that hath laboured for the       |
+| wind?\                                                                |
+| 17 All his days also he eateth in darkness, and he hath much sorrow   |
+| and wrath with his sickness.\                                         |
+| 18 Behold that which I have seen: it is good and comely for one to    |
+| eat and to drink, and to enjoy the good of all his labour that he     |
+| taketh under the sun all the days of his life, which God giveth him:  |
+| for it is his portion.\                                               |
+| []{#anchor790970}19 Every man also to whom God hath given riches and  |
+| wealth, and hath given him power to eat thereof, and to take his      |
+| portion, and to rejoice in his labour; this is the gift of God.\      |
+| 20 For he shall not much remember the days of his life; because God   |
+| answereth him in the joy of his heart.\                               |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor792331)**\ |
+| \                                                                     |
+| []{#anchor793752}**The Second Lesson\                                 |
+| Matthew 22:15-33**\                                                   |
+| 15 Then went the Pharisees, and took counsel how they might entangle  |
+| him in his talk.\                                                     |
+| 16 And they sent out unto him their disciples with the Herodians,     |
+| saying, Master, we know that thou art true, and teachest the way of   |
+| God in truth, neither carest thou for any man: for thou regardest not |
+| the person of men.\                                                   |
+| 17 Tell us therefore, What thinkest thou? Is it lawful to give        |
+| tribute unto Caesar, or not?\                                         |
+| 18 But Jesus perceived their wickedness, and said, Why tempt ye me,   |
+| ye hypocrites?\                                                       |
+| 19 Show me the tribute money. And they brought unto him a penny.\     |
+| 20 And he saith unto them, Whose is this image and superscription?\   |
+| []{#anchor795249}21 They say unto him, Caesar\'s. Then saith he unto  |
+| them, Render therefore unto Caesar the things which are Caesar\'s;    |
+| and unto God the things that are God\'s.\                             |
+| 22 When they had heard these words, they marvelled, and left him, and |
+| went their way.\                                                      |
+| 23 The same day came to him the Sadducees, which say that there is no |
+| resurrection, and asked him,\                                         |
+| 24 Saying, Master, Moses said, If a man die, having no children, his  |
+| brother shall marry his wife, and raise up seed unto his brother.\    |
+| 25 Now there were with us seven brethren: and the first, when he had  |
+| married a wife, deceased, and having no issue, left his wife unto his |
+| brother:\                                                             |
+| 26 Likewise the second also, and the third, unto the seventh.\        |
+| 27 And last of all the woman died also.\                              |
+| 28 Therefore in the resurrection whose wife shall she be of the       |
+| seven? for they all had her.\                                         |
+| 29 Jesus answered and said unto them, Ye do err, not knowing the      |
+| scriptures, nor the power of God.\                                    |
+| 30 For in the resurrection they neither marry, nor are given in       |
+| marriage, but are as the angels of God in heaven.\                    |
+| 31 But as touching the resurrection of the dead, have ye not read     |
+| that which was spoken unto you by God, saying,\                       |
+| 32 I am the God of Abraham, and the God of Isaac, and the God of      |
+| Jacob? God is not the God of the dead, but of the living.\            |
+| 33 And when the multitude heard this, they were astonished at his     |
+| doctrine.\                                                            |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor284306)**\ |
+| \                                                                     |
+| []{#anchor799571}**Tuesday\                                           |
+| [MORNING PRAYER (Abbreviated Version)\                                |
+| ](../DO_MP.html)[MORNING PRAYER (Full                                 |
+| Version)](../dailyofficeMP.html)**\                                   |
+| **[Ps 5. Verba mea auribus.](../Psalter/Ps5.html)**\                  |
+| \                                                                     |
+| []{#anchor804083}**The First Lesson\                                  |
+| 2 Kings 6:15-23**\                                                    |
+| 15 And when the servant of the man of God was risen early, and gone   |
+| forth, behold, an host compassed the city both with horses and        |
+| chariots. And his servant said unto him, Alas, my master! how shall   |
+| we do?\                                                               |
+| 16 And he answered, Fear not: for they that be with us are more than  |
+| they that be with them.\                                              |
+| 17 And Elisha prayed, and said, LORD, I pray thee, open his eyes,     |
+| that he may see. And the LORD opened the eyes of the young man; and   |
+| he saw: and, behold, the mountain was full of horses and chariots of  |
+| fire round about Elisha.\                                             |
+| 18 And when they came down to him, Elisha prayed unto the LORD, and   |
+| said, Smite this people, I pray thee, with blindness. And he smote    |
+| them with blindness according to the word of Elisha.\                 |
+| 19 And Elisha said unto them, This is not the way, neither is this    |
+| the city: follow me, and I will bring you to the man whom ye seek.    |
+| But he led them to Samaria.\                                          |
+| 20 And it came to pass, when they were come into Samaria, that Elisha |
+| said, LORD, open the eyes of these men, that they may see. And the    |
+| LORD opened their eyes, and they saw; and, behold, they were in the   |
+| midst of Samaria.\                                                    |
+| 21 And the king of Israel said unto Elisha, when he saw them, My      |
+| father, shall I smite them? shall I smite them?\                      |
+| []{#anchor805559}22 And he answered, Thou shalt not smite them:       |
+| wouldest thou smite those whom thou hast taken captive with thy sword |
+| and with thy bow? set bread and water before them, that they may eat  |
+| and drink, and go to their master.\                                   |
+| 23 And he prepared great provision for them: and when they had eaten  |
+| and drunk, he sent them away, and they went to their master. So the   |
+| bands of Syria came no more into the land of Israel.\                 |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor807975)**\ |
+| \                                                                     |
+| []{#anchor809103}**The Second Lesson\                                 |
+| 2 Timothy 1:15-2:13**\                                                |
+| 15 This thou knowest, that all they which are in Asia be turned away  |
+| from me; of whom are Phygellus and Hermogenes.\                       |
+| 16 The Lord give mercy unto the house of Onesiphorus; for he oft      |
+| refreshed me, and was not ashamed of my chain:\                       |
+| 17 But, when he was in Rome, he sought me out very diligently, and    |
+| found me.\                                                            |
+| 18 The Lord grant unto him that he may find mercy of the Lord in that |
+| day: and in how many things he ministered unto me at Ephesus, thou    |
+| knowest very well.\                                                   |
+| 1 Thou therefore, my son, be strong in the grace that is in Christ    |
+| Jesus.\                                                               |
+| 2 And the things that thou hast heard of me among many witnesses, the |
+| same commit thou to faithful men, who shall be able to teach others   |
+| also.\                                                                |
+| 3 Thou therefore endure hardness, as a good soldier of Jesus Christ.\ |
+| []{#anchor810530}4 No man that warreth entangleth himself with the    |
+| affairs of this life; that he may please him who hath chosen him to   |
+| be a soldier.\                                                        |
+| 5 And if a man also strive for masteries, yet is he not crowned,      |
+| except he strive lawfully.\                                           |
+| 6 The husbandman that laboureth must be first partaker of the         |
+| fruits.\                                                              |
+| 7 Consider what I say; and the Lord give thee understanding in all    |
+| things.\                                                              |
+| 8 Remember that Jesus Christ of the seed of David was raised from the |
+| dead according to my gospel:\                                         |
+| 9 Wherein I suffer trouble, as an evildoer, even unto bonds; but the  |
+| word of God is not bound.\                                            |
+| []{#anchor811602}10 Therefore I endure all things for the elect\'s    |
+| sakes, that they may also obtain the salvation which is in Christ     |
+| Jesus with eternal glory.\                                            |
+| 11 It is a faithful saying: For if we be dead with him, we shall also |
+| live with him:\                                                       |
+| 12 If we suffer, we shall also reign with him: if we deny him, he     |
+| also will deny us:\                                                   |
+| 13 If we believe not, yet he abideth faithful: he cannot deny         |
+| himself.\                                                             |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor813153)**\ |
+| \                                                                     |
+| []{#anchor823202}**EVENING PRAYER ([Abbreviated](../dO_EP.html) +     |
+| [Full](../dailyofficeEP.html)) (Tuesday)\                             |
+| [Ps 11. In Domino confido](../Psalter/Ps11.html).\                    |
+| [Ps 12. Salvum me fac.](../Psalter/Ps12.html)**\                      |
+| \                                                                     |
+| []{#anchor823651}**The First Lesson\                                  |
+| Ecclesiastes 6:1-2,7-12**\                                            |
+| 1 There is an evil which I have seen under the sun, and it is common  |
+| among men:\                                                           |
+| 2 A man to whom God hath given riches, wealth, and honour, so that he |
+| wanteth nothing for his soul of all that he desireth, yet God giveth  |
+| him not power to eat thereof, but a stranger eateth it: this is       |
+| vanity, and it is an evil disease.\                                   |
+| []{#anchor825170}7 All the labour of man is for his mouth, and yet    |
+| the appetite is not filled.\                                          |
+| []{#anchor826345}8 For what hath the wise more than the fool? what    |
+| hath the poor, that knoweth to walk before the living?\               |
+| 9 Better is the sight of the eyes than the wandering of the desire:   |
+| this is also vanity and vexation of spirit.\                          |
+| 10 That which hath been is named already, and it is known that it is  |
+| man: neither may he contend with him that is mightier than he.\       |
+| 11 Seeing there be many things that increase vanity, what is man the  |
+| better?\                                                              |
+| 12 For who knoweth what is good for man in this life, all the days of |
+| his vain life which he spendeth as a shadow? for who can tell a man   |
+| what shall be after him under the sun?\                               |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor828838)**\ |
+| \                                                                     |
+| []{#anchor830465}**The Second Lesson\                                 |
+| Matthew 22:34-46**\                                                   |
+| 34 But when the Pharisees had heard that he had put the Sadducees to  |
+| silence, they were gathered together.\                                |
+| 35 Then one of them, which was a lawyer, asked him a question,        |
+| tempting him, and saying,\                                            |
+| 36 Master, which is the great commandment in the law?\                |
+| 37 Jesus said unto him, Thou shalt love the Lord thy God with all thy |
+| heart, and with all thy soul, and with all thy mind.\                 |
+| 38 This is the first and great commandment.\                          |
+| 39 And the second is like unto it, Thou shalt love thy neighbour as   |
+| thyself.\                                                             |
+| 40 On these two commandments hang all the law and the prophets.\      |
+| 41 While the Pharisees were gathered together, Jesus asked them,\     |
+| 42 Saying, What think ye of Christ? whose son is he? They say unto    |
+| him, The son of David.\                                               |
+| 43 He saith unto them, How then doth David in spirit call him Lord,   |
+| saying,\                                                              |
+| 44 The LORD said unto my Lord, Sit thou on my right hand, till I make |
+| thine enemies thy footstool?\                                         |
+| 45 If David then call him Lord, how is he his son?\                   |
+| []{#anchor831831}46 And no man was able to answer him a word, neither |
+| durst any man from that day forth ask him any more questions.\        |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor836115)**\ |
+| \                                                                     |
+| []{#anchor838541}**Wednesday\                                         |
+| [MORNING PRAYER (Abbreviated Version)\                                |
+| ](../DO_MP.html)[MORNING PRAYER (Full                                 |
+| Version)](../dailyofficeMP.html)**\                                   |
+| **[Ps 9. Confitebor tibi.](../Psalter/Ps90.html)**                    |
+|                                                                       |
+| **\                                                                   |
+| **[]{#anchor839830}**The First Lesson\                                |
+| 2 Kings 9:1-6, 10b-16**\                                              |
+| 1 And Elisha the prophet called one of the children of the prophets,  |
+| and said unto him, Gird up thy loins, and take this box of oil in     |
+| thine hand, and go to Ramoth-gilead:\                                 |
+| 2 And when thou comest thither, look out there Jehu the son of        |
+| Jehoshaphat the son of Nimshi, and go in, and make him arise up from  |
+| among his brethren, and carry him to an inner chamber;\               |
+| 3 Then take the box of oil, and pour it on his head, and say, Thus    |
+| saith the LORD, I have anointed thee king over Israel. Then open the  |
+| door, and flee, and tarry not.\                                       |
+| 4 So the young man, even the young man the prophet, went to           |
+| Ramoth-gilead.\                                                       |
+| 5 And when he came, behold, the captains of the host were sitting;    |
+| and he said, I have an errand to thee, O captain. And Jehu said, Unto |
+| which of all us? And he said, To thee, O captain.\                    |
+| 6 And he arose, and went into the house; and he poured the oil on his |
+| head, and said unto him, Thus saith the LORD God of Israel, I have    |
+| anointed thee king over the people of the LORD, even over Israel.\    |
+| 10 And he opened the door, and fled.\                                 |
+| 11 Then Jehu came forth to the servants of his lord: and one said     |
+| unto him, Is all well? wherefore came this mad fellow to thee? And he |
+| said unto them, Ye know the man, and his communication.\              |
+| 12 And they said, It is false; tell us now. And he said, Thus and     |
+| thus spake he to me, saying, Thus saith the LORD, I have anointed     |
+| thee king over Israel.\                                               |
+| 13 Then they hasted, and took every man his garment, and put it under |
+| him on the top of the stairs, and blew with trumpets, saying, Jehu is |
+| king.\                                                                |
+| 14 So Jehu the son of Jehoshaphat the son of Nimshi conspired against |
+| Joram. (Now Joram had kept Ramoth-gilead, he and all Israel, because  |
+| of Hazael king of Syria.\                                             |
+| 15 But king Joram was returned to be healed in Jezreel of the wounds  |
+| which the Syrians had given him, when he fought with Hazael king of   |
+| Syria.) And Jehu said, If it be your minds, then let none go forth    |
+| nor escape out of the city to go to tell it in Jezreel.\              |
+| 16 So Jehu rode in a chariot, and went to Jezreel; for Joram lay      |
+| there. And Ahaziah king of Judah was come down to see Joram.\         |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor843533)**\ |
+| \                                                                     |
+| []{#anchor844354}**The Second Lesson\                                 |
+| 2 Timothy 2:14-26\                                                    |
+| **[]{#anchor846020}14 Of these things put them in remembrance,        |
+| charging them before the Lord that they strive not about words to no  |
+| profit, but to the subverting of the hearers.\                        |
+| 15 Study to show thyself approved unto God, a workman that needeth    |
+| not to be ashamed, rightly dividing the word of truth.\               |
+| []{#anchor847045}16 But shun profane and vain babblings: for they     |
+| will increase unto more ungodliness.\                                 |
+| 17 And their word will eat as doth a canker: of whom is Hymenaeus and |
+| Philetus;\                                                            |
+| 18 Who concerning the truth have erred, saying that the resurrection  |
+| is past already; and overthrow the faith of some.\                    |
+| 19 Nevertheless the foundation of God standeth sure, having this      |
+| seal, The Lord knoweth them that are his. And, Let every one that     |
+| nameth the name of Christ depart from iniquity.\                      |
+| 20 But in a great house there are not only vessels of gold and of     |
+| silver, but also of wood and of earth; and some to honour, and some   |
+| to dishonour.\                                                        |
+| 21 If a man therefore purge himself from these, he shall be a vessel  |
+| unto honour, sanctified, and meet for the master\'s use, and prepared |
+| unto every good work.\                                                |
+| []{#anchor848019}22 Flee also youthful lusts: but follow              |
+| righteousness, faith, charity, peace, with them that call on the Lord |
+| out of a pure heart.\                                                 |
+| 23 But foolish and unlearned questions avoid, knowing that they do    |
+| gender strifes.\                                                      |
+| 24 And the servant of the Lord must not strive; but be gentle unto    |
+| all men, apt to teach, patient,\                                      |
+| 25 In meekness instructing those that oppose themselves; if God       |
+| peradventure will give them repentance to the acknowledging of the    |
+| truth;\                                                               |
+| 26 And that they may recover themselves out of the snare of the       |
+| devil, who are taken captive by him at his will.\                     |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor848645)**\ |
+| \                                                                     |
+| []{#anchor854210}**EVENING PRAYER ([Abbreviated](../dO_EP.html) +     |
+| [Full](../dailyofficeEP.html)) (Wednesday)\                           |
+| [Ps 13. Usquequo, Domine](../Psalter/Ps13.html)?\                     |
+| [Ps 14. Dixit insipiens.](../Psalter/Ps14.html)**\                    |
+| \                                                                     |
+| []{#anchor854519}**The First Lesson\                                  |
+| Ecclesiastes 8:12-9:1\                                                |
+| **[]{#anchor856764}12 Though a sinner do evil an hundred times, and   |
+| his days be prolonged, yet surely I know that it shall be well with   |
+| them that fear God, which fear before him:\                           |
+| 13 But it shall not be well with the wicked, neither shall he prolong |
+| his days, which are as a shadow; because he feareth not before God.\  |
+| 14 There is a vanity which is done upon the earth; that there be just |
+| men, unto whom it happeneth according to the work of the wicked;      |
+| again, there be wicked men, to whom it happeneth according to the     |
+| work of the righteous: I said that this also is vanity.\              |
+| 15 Then I commended mirth, because a man hath no better thing under   |
+| the sun, than to eat, and to drink, and to be merry: for that shall   |
+| abide with him of his labour the days of his life, which God giveth   |
+| him under the sun.\                                                   |
+| 16 When I applied mine heart to know wisdom, and to see the business  |
+| that is done upon the earth: (for also there is that neither day nor  |
+| night seeth sleep with his eyes:)\                                    |
+| 17 Then I beheld all the work of God, that a man cannot find out the  |
+| work that is done under the sun: because though a man labour to seek  |
+| it out, yet he shall not find it; yea further; though a wise man      |
+| think to know it, yet shall he not be able to find it.\               |
+| []{#anchor858175}1 For all this I considered in my heart even to      |
+| declare all this, that the righteous, and the wise, and their works,  |
+| are in the hand of God: no man knoweth either love or hatred by all   |
+| that is before them.\                                                 |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor860795)**\ |
+| \                                                                     |
+| []{#anchor861836}**The Second Lesson\                                 |
+| Matthew 23:1-12**\                                                    |
+| 1 Then spake Jesus to the multitude, and to his disciples,\           |
+| 2 Saying, The scribes and the Pharisees sit in Moses\' seat:\         |
+| 3 All therefore whatsoever they bid you observe, that observe and do; |
+| but do not ye after their works: for they say, and do not.\           |
+| 4 For they bind heavy burdens and grievous to be borne, and lay them  |
+| on men\'s shoulders; but they themselves will not move them with one  |
+| of their fingers.\                                                    |
+| 5 But all their works they do for to be seen of men: they make broad  |
+| their phylacteries, and enlarge the borders of their garments,\       |
+| 6 And love the uppermost rooms at feasts, and the chief seats in the  |
+| synagogues,\                                                          |
+| 7 And greetings in the markets, and to be called of men, Rabbi,       |
+| Rabbi.\                                                               |
+| 8 But be not ye called Rabbi: for one is your Master, even Christ;    |
+| and all ye are brethren.\                                             |
+| 9 And call no man your father upon the earth: for one is your Father, |
+| which is in heaven.\                                                  |
+| 10 Neither be ye called masters: for one is your Master, even         |
+| Christ.\                                                              |
+| 11 But he that is greatest among you shall be your servant.\          |
+| 12 And whosoever shall exalt himself shall be abased; and he that     |
+| shall humble himself shall be exalted.\                               |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor863090)**\ |
+| \                                                                     |
+| []{#anchor868561}**Thursday\                                          |
+| [MORNING PRAYER (Abbreviated Version)\                                |
+| ](../DO_MP.html)[MORNING PRAYER (Full                                 |
+| Version)](../dailyofficeMP.html)**\                                   |
+| **[Ps 10. Ut quid, Domine ?](../Psalter/Ps10.html)**\                 |
+| \                                                                     |
+| []{#anchor869679}**The First Lesson\                                  |
+| 2 Kings 9:17-28**\                                                    |
+| 17 And there stood a watchman on the tower in Jezreel, and he spied   |
+| the company of Jehu as he came, and said, I see a company. And Joram  |
+| said, Take an horseman, and send to meet them, and let him say, Is it |
+| peace?\                                                               |
+| 18 So there went one on horseback to meet him, and said, Thus saith   |
+| the king, Is it peace? And Jehu said, What hast thou to do with       |
+| peace? turn thee behind me. And the watchman told, saying, The        |
+| messenger came to them, but he cometh not again.\                     |
+| 19 Then he sent out a second on horseback, which came to them, and    |
+| said, Thus saith the king, Is it peace? And Jehu answered, What hast  |
+| thou to do with peace? turn thee behind me.\                          |
+| 20 And the watchman told, saying, He came even unto them, and cometh  |
+| not again: and the driving is like the driving of Jehu the son of     |
+| Nimshi; for he driveth furiously.\                                    |
+| 21 And Joram said, Make ready. And his chariot was made ready. And    |
+| Joram king of Israel and Ahaziah king of Judah went out, each in his  |
+| chariot, and they went out against Jehu, and met him in the portion   |
+| of Naboth the Jezreelite.\                                            |
+| 22 And it came to pass, when Joram saw Jehu, that he said, Is it      |
+| peace, Jehu? And he answered, What peace, so long as the whoredoms of |
+| thy mother Jezebel and her witchcrafts are so many?\                  |
+| 23 And Joram turned his hands, and fled, and said to Ahaziah, There   |
+| is treachery, O Ahaziah.\                                             |
+| 24 And Jehu drew a bow with his full strength, and smote Jehoram      |
+| between his arms, and the arrow went out at his heart, and he sunk    |
+| down in his chariot.\                                                 |
+| 25 Then said Jehu to Bidkar his captain, Take up, and cast him in the |
+| portion of the field of Naboth the Jezreelite: for remember how that, |
+| when I and thou rode together after Ahab his father, the LORD laid    |
+| this burden upon him;\                                                |
+| 26 Surely I have seen yesterday the blood of Naboth, and the blood of |
+| his sons, saith the LORD; and I will requite thee in this plat, saith |
+| the LORD. Now therefore take and cast him into the plat of ground,    |
+| according to the word of the LORD.\                                   |
+| 27 But when Ahaziah the king of Judah saw this, he fled by the way of |
+| the garden house. And Jehu followed after him, and said, Smite him    |
+| also in the chariot. And they did so at the going up to Gur, which is |
+| by Ibleam. And he fled to Megiddo, and died there.\                   |
+| 28 And his servants carried him in a chariot to Jerusalem, and buried |
+| him in his sepulchre with his fathers in the city of David.\          |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor871715)**\ |
+| \                                                                     |
+| []{#anchor872869}**The Second Lesson\                                 |
+| 2 Timothy 3**\                                                        |
+| 1 This know also, that in the last days perilous times shall come.\   |
+| []{#anchor874600}2 For men shall be lovers of their own selves,       |
+| covetous, boasters, proud, blasphemers, disobedient to parents,       |
+| unthankful, unholy,\                                                  |
+| 3 Without natural affection, trucebreakers, false accusers,           |
+| incontinent, fierce, despisers of those that are good,\               |
+| 4 Traitors, heady, highminded, lovers of pleasures more than lovers   |
+| of God;\                                                              |
+| 5 Having a form of godliness, but denying the power thereof: from     |
+| such turn away.\                                                      |
+| 6 For of this sort are they which creep into houses, and lead captive |
+| silly women laden with sins, led away with divers lusts,\             |
+| 7 Ever learning, and never able to come to the knowledge of the       |
+| truth.\                                                               |
+| 8 Now as Jannes and Jambres withstood Moses, so do these also resist  |
+| the truth: men of corrupt minds, reprobate concerning the faith.\     |
+| 9 But they shall proceed no further: for their folly shall be         |
+| manifest unto all men, as theirs also was.\                           |
+| 10 But thou hast fully known my doctrine, manner of life, purpose,    |
+| faith, longsuffering, charity, patience,\                             |
+| 11 Persecutions, afflictions, which came unto me at Antioch, at       |
+| Iconium, at Lystra; what persecutions I endured: but out of them all  |
+| the Lord delivered me.\                                               |
+| 12 Yea, and all that will live godly in Christ Jesus shall suffer     |
+| persecution.\                                                         |
+| 13 But evil men and seducers shall wax worse and worse, deceiving,    |
+| and being deceived.\                                                  |
+| 14 But continue thou in the things which thou hast learned and hast   |
+| been assured of, knowing of whom thou hast learned them;\             |
+| 15 And that from a child thou hast known the holy scriptures, which   |
+| are able to make thee wise unto salvation through faith which is in   |
+| Christ Jesus.\                                                        |
+| 16 All scripture is given by inspiration of God, and is profitable    |
+| for doctrine, for reproof, for correction, for instruction in         |
+| righteousness:\                                                       |
+| []{#anchor876419}17 That the man of God may be perfect, thoroughly    |
+| furnished unto all good works.\                                       |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor877924)**\ |
+| \                                                                     |
+| []{#anchor883625}**EVENING PRAYER ([Abbreviated](../dO_EP.html) +     |
+| [Full](../dailyofficeEP.html)) (Thursday)\                            |
+| [Ps 16. Conserva me, Domine](../Psalter/Ps16.html).\                  |
+| [Ps 17. Exaudi, Domine.](../Psalter/Ps17.html)**\                     |
+| \                                                                     |
+| []{#anchor883980}**The First Lesson\                                  |
+| Ecclesiastes 9:11-18**\                                               |
+| 11 I returned, and saw under the sun, that the race is not to the     |
+| swift, nor the battle to the strong, neither yet bread to the wise,   |
+| nor yet riches to men of understanding, nor yet favour to men of      |
+| skill; but time and chance happeneth to them all.\                    |
+| 12 For man also knoweth not his time: as the fishes that are taken in |
+| an evil net, and as the birds that are caught in the snare; so are    |
+| the sons of men snared in an evil time, when it falleth suddenly upon |
+| them.\                                                                |
+| 13 This wisdom have I seen also under the sun, and it seemed great    |
+| unto me:\                                                             |
+| 14 There was a little city, and few men within it; and there came a   |
+| great king against it, and besieged it, and built great bulwarks      |
+| against it:\                                                          |
+| 15 Now there was found in it a poor wise man, and he by his wisdom    |
+| delivered the city; yet no man remembered that same poor man.\        |
+| []{#anchor885313}16 Then said I, Wisdom is better than strength:      |
+| nevertheless the poor man\'s wisdom is despised, and his words are    |
+| not heard.\                                                           |
+| 17 The words of wise men are heard in quiet more than the cry of him  |
+| that ruleth among fools.\                                             |
+| 18 Wisdom is better than weapons of war: but one sinner destroyeth    |
+| much good.\                                                           |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor886605)**\ |
+| \                                                                     |
+| []{#anchor888343}**The Second Lesson\                                 |
+| Matthew 23:13-23**\                                                   |
+| 13 But woe unto you, scribes and Pharisees, hypocrites! for ye shut   |
+| up the kingdom of heaven against men: for ye neither go in            |
+| yourselves, neither suffer ye them that are entering to go in.\       |
+| 14 Woe unto you, scribes and Pharisees, hypocrites! for ye devour     |
+| widows\' houses, and for a pretence make long prayer: therefore ye    |
+| shall receive the greater damnation.\                                 |
+| 15 Woe unto you, scribes and Pharisees, hypocrites! for ye compass    |
+| sea and land to make one proselyte, and when he is made, ye make him  |
+| twofold more the child of hell than yourselves.\                      |
+| 16 Woe unto you, ye blind guides, which say, Whosoever shall swear by |
+| the temple, it is nothing; but whosoever shall swear by the gold of   |
+| the temple, he is a debtor!\                                          |
+| 17 Ye fools and blind: for whether is greater, the gold, or the       |
+| temple that sanctifieth the gold?\                                    |
+| 18 And, Whosoever shall swear by the altar, it is nothing; but        |
+| whosoever sweareth by the gift that is upon it, he is guilty.\        |
+| 19 Ye fools and blind: for whether is greater, the gift, or the altar |
+| that sanctifieth the gift?\                                           |
+| 20 Whoso therefore shall swear by the altar, sweareth by it, and by   |
+| all things thereon.\                                                  |
+| 21 And whoso shall swear by the temple, sweareth by it, and by him    |
+| that dwelleth therein.\                                               |
+| 22 And he that shall swear by heaven, sweareth by the throne of God,  |
+| and by him that sitteth thereon.\                                     |
+| []{#anchor889658}23 Woe unto you, scribes and Pharisees, hypocrites!  |
+| for ye pay tithe of mint and anise and cummin, and have omitted the   |
+| weightier matters of the law, judgment, mercy, and faith: these ought |
+| ye to have done, and not to leave the other undone.\                  |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor891186)**\ |
+| \                                                                     |
+| []{#anchor2547381}**Friday\                                           |
+| [MORNING PRAYER (Abbreviated Version)\                                |
+| ](../DO_MP.html)[MORNING PRAYER (Full                                 |
+| Version)](../dailyofficeMP.html)**\                                   |
+| **[Ps 22. Deus, Deus meus.](../Psalter/Ps22.html)**\                  |
+| \                                                                     |
+| []{#anchor893331}**The First Lesson\                                  |
+| 2 Kings 9:30-37**\                                                    |
+| 30 And when Jehu was come to Jezreel, Jezebel heard of it; and she    |
+| painted her face, and tired her head, and looked out at a window.\    |
+| 31 And as Jehu entered in at the gate, she said, Had Zimri peace, who |
+| slew his master?\                                                     |
+| 32 And he lifted up his face to the window, and said, Who is on my    |
+| side? who? And there looked out to him two or three eunuchs.\         |
+| 33 And he said, Throw her down. So they threw her down: and some of   |
+| her blood was sprinkled on the wall, and on the horses: and he trode  |
+| her under foot.\                                                      |
+| 34 And when he was come in, he did eat and drink, and said, Go, see   |
+| now this cursed woman, and bury her: for she is a king\'s daughter.\  |
+| 35 And they went to bury her: but they found no more of her than the  |
+| skull, and the feet, and the palms of her hands.\                     |
+| 36 Wherefore they came again, and told him. And he said, This is the  |
+| word of the LORD, which he spake by his servant Elijah the Tishbite,  |
+| saying, In the portion of Jezreel shall dogs eat the flesh of         |
+| Jezebel:\                                                             |
+| 37 And the carcase of Jezebel shall be as dung upon the face of the   |
+| field in the portion of Jezreel; so that they shall not say, This is  |
+| Jezebel.\                                                             |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor896150)**\ |
+| \                                                                     |
+| []{#anchor897551}**The Second Lesson\                                 |
+| 2 Timothy 4:1-8**\                                                    |
+| 1 I charge thee therefore before God, and the Lord Jesus Christ, who  |
+| shall judge the quick and the dead at his appearing and his kingdom;\ |
+| 2 Preach the word; be instant in season, out of season; reprove,      |
+| rebuke, exhort with all longsuffering and doctrine.\                  |
+| 3 For the time will come when they will not endure sound doctrine;    |
+| but after their own lusts shall they heap to themselves teachers,     |
+| having itching ears;\                                                 |
+| 4 And they shall turn away their ears from the truth, and shall be    |
+| turned unto fables.\                                                  |
+| 5 But watch thou in all things, endure afflictions, do the work of an |
+| evangelist, make full proof of thy ministry.\                         |
+| 6 For I am now ready to be offered, and the time of my departure is   |
+| at hand.\                                                             |
+| []{#anchor898873}7 I have fought a good fight, I have finished my     |
+| course, I have kept the faith:\                                       |
+| 8 Henceforth there is laid up for me a crown of righteousness, which  |
+| the Lord, the righteous judge, shall give me at that day: and not to  |
+| me only, but unto all them also that love his appearing.\             |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor899698)**\ |
+| \                                                                     |
+| []{#anchor2552153}**EVENING PRAYER ([Abbreviated](../dO_EP.html) +    |
+| [Full](../dailyofficeEP.html)) (Friday)\                              |
+| [Ps 6. Domine, ne in furore](../Psalter/Ps6.html).\                   |
+| [Ps 26. Judica me, Domine.](../Psalter/Ps26.html)**\                  |
+| \                                                                     |
+| []{#anchor905547}**The First Lesson\                                  |
+| Ecclesiastes 11**\                                                    |
+| 1 Cast thy bread upon the waters: for thou shalt find it after many   |
+| days.\                                                                |
+| 2 Give a portion to seven, and also to eight; for thou knowest not    |
+| what evil shall be upon the earth.\                                   |
+| 3 If the clouds be full of rain, they empty themselves upon the       |
+| earth: and if the tree fall toward the south, or toward the north, in |
+| the place where the tree falleth, there it shall be.\                 |
+| 4 He that observeth the wind shall not sow; and he that regardeth the |
+| clouds shall not reap.\                                               |
+| 5 As thou knowest not what is the way of the spirit, nor how the      |
+| bones do grow in the womb of her that is with child: even so thou     |
+| knowest not the works of God who maketh all.\                         |
+| 6 In the morning sow thy seed, and in the evening withhold not thine  |
+| hand: for thou knowest not whether shall prosper, either this or      |
+| that, or whether they both shall be alike good.\                      |
+| 7 Truly the light is sweet, and a pleasant thing it is for the eyes   |
+| to behold the sun:\                                                   |
+| []{#anchor906533}8 But if a man live many years, and rejoice in them  |
+| all; yet let him remember the days of darkness; for they shall be     |
+| many. All that cometh is vanity.\                                     |
+| 9 Rejoice, O young man, in thy youth; and let thy heart cheer thee in |
+| the days of thy youth, and walk in the ways of thine heart, and in    |
+| the sight of thine eyes: but know thou, that for all these things God |
+| will bring thee into judgment.\                                       |
+| 10 Therefore remove sorrow from thy heart, and put away evil from thy |
+| flesh: for childhood and youth are vanity.\                           |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor907264)**\ |
+| \                                                                     |
+| []{#anchor908879}**The Second Lesson\                                 |
+| Matthew 23:25-39**\                                                   |
+| 25 Woe unto you, scribes and Pharisees, hypocrites! for ye make clean |
+| the outside of the cup and of the platter, but within they are full   |
+| of extortion and excess.\                                             |
+| 26 Thou blind Pharisee, cleanse first that which is within the cup    |
+| and platter, that the outside of them may be clean also.\             |
+| []{#anchor910515}27 Woe unto you, scribes and Pharisees, hypocrites!  |
+| for ye are like unto whited sepulchres, which indeed appear beautiful |
+| outward, but are within full of dead men\'s bones, and of all         |
+| uncleanness.\                                                         |
+| 28 Even so ye also outwardly appear righteous unto men, but within ye |
+| are full of hypocrisy and iniquity.\                                  |
+| 29 Woe unto you, scribes and Pharisees, hypocrites! because ye build  |
+| the tombs of the prophets, and garnish the sepulchres of the          |
+| righteous,\                                                           |
+| 30 And say, If we had been in the days of our fathers, we would not   |
+| have been partakers with them in the blood of the prophets.\          |
+| 31 Wherefore ye be witnesses unto yourselves, that ye are the         |
+| children of them which killed the prophets.\                          |
+| 32 Fill ye up then the measure of your fathers.\                      |
+| 33 Ye serpents, ye generation of vipers, how can ye escape the        |
+| damnation of hell?\                                                   |
+| 34 Wherefore, behold, I send unto you prophets, and wise men, and     |
+| scribes: and some of them ye shall kill and crucify; and some of them |
+| shall ye scourge in your synagogues, and persecute them from city to  |
+| city:\                                                                |
+| 35 That upon you may come all the righteous blood shed upon the       |
+| earth, from the blood of righteous Abel unto the blood of Zacharias   |
+| son of Barachias, whom ye slew between the temple and the altar.\     |
+| 36 Verily I say unto you, All these things shall come upon this       |
+| generation.\                                                          |
+| 37 O Jerusalem, Jerusalem, thou that killest the prophets, and        |
+| stonest them which are sent unto thee, how often would I have         |
+| gathered thy children together, even as a hen gathereth her chickens  |
+| under her wings, and ye would not!\                                   |
+| 38 Behold, your house is left unto you desolate.\                     |
+| 39 For I say unto you, Ye shall not see me henceforth, till ye shall  |
+| say, Blessed is he that cometh in the name of the Lord.\              |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor911317)**\ |
+| \                                                                     |
+| []{#anchor2549076}**Saturday\                                         |
+| [MORNING PRAYER (Abbreviated Version)\                                |
+| ](../DO_MP.html)[MORNING PRAYER (Full                                 |
+| Version)](../dailyofficeMP.html)**\                                   |
+| **[Ps 21. 1-6 Domine, in virtute tua](../Psalter/Ps21.html).\         |
+| [Ps 23. Dominus regit me.](../Psalter/Ps23.html)**\                   |
+| \                                                                     |
+| []{#anchor917109}**The First Lesson\                                  |
+| 2 Kings 11:1-4, 9-16**\                                               |
+| 1 And when Athaliah the mother of Ahaziah saw that her son was dead,  |
+| she arose and destroyed all the seed royal.\                          |
+| 2 But Jehosheba, the daughter of king Joram, sister of Ahaziah, took  |
+| Joash the son of Ahaziah, and stole him from among the king\'s sons   |
+| which were slain; and they hid him, even him and his nurse, in the    |
+| bedchamber from Athaliah, so that he was not slain.\                  |
+| 3 And he was with her hid in the house of the LORD six years. And     |
+| Athaliah did reign over the land.\                                    |
+| 4 And the seventh year Jehoiada sent and fetched the rulers over      |
+| hundreds, with the captains and the guard, and brought them to him    |
+| into the house of the LORD, and made a covenant with them, and took   |
+| an oath of them in the house of the LORD, and showed them the king\'s |
+| son.\                                                                 |
+| 9 And the captains over the hundreds did according to all things that |
+| Jehoiada the priest commanded: and they took every man his men that   |
+| were to come in on the sabbath, with them that should go out on the   |
+| sabbath, and came to Jehoiada the priest.\                            |
+| 10 And to the captains over hundreds did the priest give king         |
+| David\'s spears and shields, that were in the temple of the LORD.\    |
+| 11 And the guard stood, every man with his weapons in his hand, round |
+| about the king, from the right corner of the temple to the left       |
+| corner of the temple, along by the altar and the temple.\             |
+| 12 And he brought forth the king\'s son, and put the crown upon him,  |
+| and gave him the testimony; and they made him king, and anointed him; |
+| and they clapped their hands, and said, God save the king.\           |
+| 13 And when Athaliah heard the noise of the guard and of the people,  |
+| she came to the people into the temple of the LORD.\                  |
+| 14 And when she looked, behold, the king stood by a pillar, as the    |
+| manner was, and the princes and the trumpeters by the king, and all   |
+| the people of the land rejoiced, and blew with trumpets: and Athaliah |
+| rent her clothes, and cried, Treason, Treason.\                       |
+| 15 But Jehoiada the priest commanded the captains of the hundreds,    |
+| the officers of the host, and said unto them, Have her forth without  |
+| the ranges: and him that followeth her kill with the sword. For the   |
+| priest had said, Let her not be slain in the house of the LORD.\      |
+| 16 And they laid hands on her; and she went by the way by the which   |
+| the horses came into the king\'s house: and there was she slain.\     |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor919379)**\ |
+| \                                                                     |
+| []{#anchor920512}**The Second Lesson\                                 |
+| 2 Timothy 4:9-22**\                                                   |
+| 9 Do thy diligence to come shortly unto me:\                          |
+| 10 For Demas hath forsaken me, having loved this present world, and   |
+| is departed unto Thessalonica; Crescens to Galatia, Titus unto        |
+| Dalmatia.\                                                            |
+| 11 Only Luke is with me. Take Mark, and bring him with thee: for he   |
+| is profitable to me for the ministry.\                                |
+| 12 And Tychicus have I sent to Ephesus.\                              |
+| 13 The cloak that I left at Troas with Carpus, when thou comest,      |
+| bring with thee, and the books, but especially the parchments.\       |
+| 14 Alexander the coppersmith did me much evil: the Lord reward him    |
+| according to his works:\                                              |
+| 15 Of whom be thou ware also; for he hath greatly withstood our       |
+| words.\                                                               |
+| []{#anchor921912}16 At my first answer no man stood with me, but all  |
+| men forsook me: I pray God that it may not be laid to their charge.\  |
+| 17 Notwithstanding the Lord stood with me, and strengthened me; that  |
+| by me the preaching might be fully known, and that all the Gentiles   |
+| might hear: and I was delivered out of the mouth of the lion.\        |
+| 18 And the Lord shall deliver me from every evil work, and will       |
+| preserve me unto his heavenly kingdom: to whom be glory for ever and  |
+| ever. Amen.\                                                          |
+| 19 Salute Prisca and Aquila, and the household of Onesiphorus.\       |
+| 20 Erastus abode at Corinth: but Trophimus have I left at Miletum     |
+| sick.\                                                                |
+| 21 Do thy diligence to come before winter. Eubulus greeteth thee, and |
+| Pudens, and Linus, and Claudia, and all the brethren.\                |
+| 22 The Lord Jesus Christ be with thy spirit. Grace be with you.       |
+| Amen.\                                                                |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor923830)**\ |
+| \                                                                     |
+| []{#anchor930217}**EVENING PRAYER ([Abbreviated](../dO_EP.html) +     |
+| [Full](../dailyofficeEP.html)) (Saturday)\                            |
+| [Ps 18. 1-20 Diligam te, Domine.](../Psalter/Ps18.html)**\            |
+| \                                                                     |
+| []{#anchor927173}**The First Lesson\                                  |
+| Ecclesiastes 12**\                                                    |
+| 1 Remember now thy Creator in the days of thy youth, while the evil   |
+| days come not, nor the years draw nigh, when thou shalt say, I have   |
+| no pleasure in them;\                                                 |
+| 2 While the sun, or the light, or the moon, or the stars, be not      |
+| darkened, nor the clouds return after the rain:\                      |
+| 3 In the day when the keepers of the house shall tremble, and the     |
+| strong men shall bow themselves, and the grinders cease because they  |
+| are few, and those that look out of the windows be darkened,\         |
+| 4 And the doors shall be shut in the streets, when the sound of the   |
+| grinding is low, and he shall rise up at the voice of the bird, and   |
+| all the daughters of music shall be brought low;\                     |
+| 5 Also when they shall be afraid of that which is high, and fears     |
+| shall be in the way, and the almond tree shall flourish, and the      |
+| grasshopper shall be a burden, and desire shall fail: because man     |
+| goeth to his long home, and the mourners go about the streets:\       |
+| 6 Or ever the silver cord be loosed, or the golden bowl be broken, or |
+| the pitcher be broken at the fountain, or the wheel broken at the     |
+| cistern.\                                                             |
+| 7 Then shall the dust return to the earth as it was: and the spirit   |
+| shall return unto God who gave it.\                                   |
+| 8 Vanity of vanities, saith the preacher; all is vanity.\             |
+| 9 And moreover, because the preacher was wise, he still taught the    |
+| people knowledge; yea, he gave good heed, and sought out, and set in  |
+| order many proverbs.\                                                 |
+| 10 The preacher sought to find out acceptable words: and that which   |
+| was written was upright, even words of truth.\                        |
+| 11 The words of the wise are as goads, and as nails fastened by the   |
+| masters of assemblies, which are given from one shepherd.\            |
+| 12 And further, by these, my son, be admonished: of making many books |
+| there is no end; and much study is a weariness of the flesh.\         |
+| []{#anchor931245}13 Let us hear the conclusion of the whole matter:   |
+| Fear God, and keep his commandments: for this is the whole duty of    |
+| man.\                                                                 |
+| 14 For God shall bring every work into judgment, with every secret    |
+| thing, whether it be good, or whether it be evil.\                    |
+| **[](http://www.episcopa                                              |
+| lnet.org/DailyBibleReadings/questions/Trinity21.html#anchor932724)**\ |
+| \                                                                     |
+| []{#anchor935065}**The Second Lesson\                                 |
+| Matthew 24:1-14**\                                                    |
+| 1 And Jesus went out, and departed from the temple: and his disciples |
+| came to him for to show him the buildings of the temple.\             |
+| 2 And Jesus said unto them, See ye not all these things? verily I say |
+| unto you, There shall not be left here one stone upon another, that   |
+| shall not be thrown down.\                                            |
+| 3 And as he sat upon the mount of Olives, the disciples came unto him |
+| privately, saying, Tell us, when shall these things be? and what      |
+| shall be the sign of thy coming, and of the end of the world?\        |
+| 4 And Jesus answered and said unto them, Take heed that no man        |
+| deceive you.\                                                         |
+| 5 For many shall come in my name, saying, I am Christ; and shall      |
+| deceive many.\                                                        |
+| 6 And ye shall hear of wars and rumours of wars: see that ye be not   |
+| troubled: for all these things must come to pass, but the end is not  |
+| yet.\                                                                 |
+| 7 For nation shall rise against nation, and kingdom against kingdom:  |
+| and there shall be famines, and pestilences, and earthquakes, in      |
+| divers places.\                                                       |
+| 8 All these are the beginning of sorrows.\                            |
+| 9 Then shall they deliver you up to be afflicted, and shall kill you: |
+| and ye shall be hated of all nations for my name\'s sake.\            |
+| 10 And then shall many be offended, and shall betray one another, and |
+| shall hate one another.\                                              |
+| 11 And many false prophets shall rise, and shall deceive many.\       |
+| 12 And because iniquity shall abound, the love of many shall wax      |
+| cold.\                                                                |
+| 13 But he that shall endure unto the end, the same shall be saved.\   |
+| 14 And this gospel of the kingdom shall be preached in all the world  |
+| for a witness unto all nations; and then shall the end come.\         |
+| **[](http://www.episcop                                               |
+| alnet.org/DailyBibleReadings/questions/Trinity21.html#anchor933839)** |
+|                                                                       |
+| -------------------------------------------------------------------   |
+|                                                                       |
+| All Rights Reserved.\                                                 |
+| Copyright. 1998 - 2000                                                |
+| [episcopalnet.org](http://www.episcopalnet.org/index.html)\           |
+| \                                                                     |
+| [](http://www.episcopalnet.org/DBS/DOR.html)                          |
++-----------------------------------------------------------------------+

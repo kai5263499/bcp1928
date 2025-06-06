@@ -1,0 +1,74 @@
+::: {#container}
+::: {#header}
+# [Psalter 30 Day Cycle Day 18 Evening Prayer]{.style1}
+:::
+
+::: {#mainContent}
+**Psalm 93. Dominus regnavit.**\
+THE LORD is King, and hath put on glorious apparel; \* the LORD hath put
+on his apparel, and girded himself with strength.\
+2 He hath made the round world so sure, \* that it cannot be moved.\
+3 Ever since the world began, hath thy seat been prepared: \* thou art
+from everlasting.\
+4 The floods are risen, O LORD, the floods have lift up their voice; \*
+the floods lift up their waves.\
+5 The waves of the sea are mighty, and rage horribly; \* but yet the
+LORD, who dwelleth on high, is mightier.\
+6 Thy testimonies, O LORD, are very sure: \* holiness becometh thine
+house for ever.\
+
+**Psalm 94. Deus ultionum.**\
+O LORD God, to whom vengeance belongeth, \* thou God, to whom vengeance
+belongeth, show thyself.\
+2 Arise, thou Judge of the world, \* and reward the proud after their
+deserving.\
+3 LORD, how long shall the ungodly, \* how long shall the ungodly
+triumph?\
+4 How long shall all wicked doers speak so disdainfully, \* and make
+such proud boasting?\
+5 They smite down thy people, O LORD, \* and trouble thine heritage.\
+6 They murder the widow and the stranger, \* and put the fatherless to
+death.\
+7 And yet they say, Tush, the LORD shall not see, \* neither shall the
+God of Jacob regard it.\
+8 Take heed, ye unwise among the people: \* O ye fools, when will ye
+understand?\
+9 He that planted the ear, shall he not hear? \* or he that made the
+eye, shall he not see?\
+10 Or he that instructeth the heathen, \* it is he that teacheth man
+knowledge; shall not he punish?\
+11 The LORD knoweth the thoughts of man, \* that they are but vain.\
+12 Blessed is the man whom thou chastenest, O LORD, \* and teachest him
+in thy law;\
+13 That thou mayest give him patience in time of adversity, \* until the
+pit be digged up for the ungodly.\
+14 For the LORD will not fail his people; \* neither will he forsake his
+inheritance;\
+15 Until righteousness turn again unto judgment: \* all such as are true
+in heart shall follow it.\
+16 Who will rise up with me against the wicked? \* or who will take my
+part against the evil doers?\
+17 If the LORD had not helped me, \* it had not failed, but my soul had
+been put to silence.\
+18 But when I said, My foot hath slipt; \* thy mercy, O LORD, held me
+up.\
+19 In the multitude of the sorrows that I had in my heart, \* thy
+comforts have refreshed my soul.\
+20 Wilt thou have any thing to do with the throne of wickedness, \*
+which imagineth mischief as a law?\
+21 They gather them together against the soul of the righteous, \* and
+condemn the innocent blood.\
+22 But the LORD is my refuge, \* and my God is the strength of my
+confidence.\
+23 He shall recompense them their wickedness, and destroy them in their
+own malice; \* yea, the LORD our God shall destroy them.
+:::
+
+::: {#footer}
+Copyright 2007. All Rights Reserved.
+
+![](http://stats.superstats.com/b/ss/DAVIDMCMANNES/1){border="0"}
+
+ 
+:::
+:::
